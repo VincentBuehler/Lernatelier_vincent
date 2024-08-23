@@ -4,6 +4,10 @@
 ### Ziel 2 ich möchte konzentriert arbeiten das ich alle meine aufträge erfülle
 ### Ziel 3 Ich will Im Modul 319 an den aufgaben der letzten lektion weiter arbeiten.
 
+# Reflexion
+## ich habe heute alle meine Ziele erreicht und umsetzen können
+
+
 
 
 
@@ -13,5 +17,5 @@
 ### 319 Hausaufgaben fertig machen Digitale Uhr
 ### 331 3-4 Moodle tests zu machen
 
-## Reflexion 
+# Reflexion 
 ## Ich konnte heute alle meine Aufträge bearbeiten und meine Ziele erreichen ich denk ich hätte noch etwas konzentrierter arbeiten können und ein bisschen schneller arbeiten.
