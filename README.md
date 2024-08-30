@@ -1,8 +1,8 @@
-### Lernatelier Tag 3
+# Lernatelier Tag 3
 ## 30.08.2024
 ### Ziele 
 ### heute will ich versuchen die grundlagen von dem modul 319 besser zu verstehen
-### auch will ich die Aufgaben von letztem
+### auch will ich die Aufgaben von letztem Mittwoch von Modul 431 fertig zu lösen
 
 
 
