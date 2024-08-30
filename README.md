@@ -1,3 +1,16 @@
+### Lernatelier Tag 3
+## 30.08.2024
+### Ziele 
+### heute will ich versuchen die grundlagen von dem modul 319 besser zu verstehen
+### auch will ich die Aufgaben von letztem
+
+
+
+
+
+
+
+
 # Lernatelier Tag 2
 ## 23.08.2024
 ### Ziel 1 ich möchte mit Tobi die aufgaben 1705 1706 1707 erledigen
