@@ -1,12 +1,23 @@
+# Lernatelier Tag 4
+### 06.09.2024
+### Ziele
+### heute will ich alle aufträge die ich nicht abliessen konnte von 319 und 431 fertig lösen 1715, 1718
+### auch will ich die aufträge von 319 fertig lösen
+
+# Reflexion
+### ich konnte fast alle meine aufträge beenden obwohl ich sehr unkonzentriert war und ich denke ich hätte mehr in diesen 5 Lektionen kösen können 
+
+
+
+
 # Lernatelier Tag 3
 ## 30.08.2024
 ### Ziele 
 ### heute will ich versuchen die grundlagen von dem modul 319 besser zu verstehen
 ### auch will ich die Aufgaben von letztem Mittwoch von Modul 431 fertig zu lösen
 
-
-
-
+# Reflexion
+### ich konnte heute leider nicht alle meine aufträge erfüllen trotzdem habe ich vieles von dem Modul 319 besser verstanden
 
 
 
