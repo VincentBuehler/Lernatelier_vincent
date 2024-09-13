@@ -1,3 +1,15 @@
+# Lernatelier Tag 5
+### 13.09.2024
+### Ziele
+### heute will ich die nicht erfüllten aufgaben von letzen Mittwoch 1717, 1718 lösen und Arrays besser kennen zu lernen.
+
+
+
+
+
+
+
+
 # Lernatelier Tag 4
 ### 06.09.2024
 ### Ziele
