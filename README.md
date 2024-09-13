@@ -3,7 +3,9 @@
 ### Ziele
 ### heute will ich die nicht erfüllten aufgaben von letzen Mittwoch 1717, 1718 lösen und Arrays besser kennen zu lernen.
 
-
+# Reflexion
+### 13.09.2024
+### Heute konnte ich meine Ziele erreichen.
 
 
 
