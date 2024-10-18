@@ -1,7 +1,7 @@
 # Lernatelier Tag 7
 ### 18.10.2024
 ### Ziele 
-### heute will 
+### heute will im modul 319 weiterarbeiten und die nicht gelösten Ziele vom letzten dienstag machen
 
 # Reflexion
 ### 18.10.2024
@@ -13,11 +13,11 @@
 # Lernatelier Tag 6
 ### 20.09.2024
 ### Ziele 
-### heute will 
+### heute will beim modul 431 weiterarbeiten und weitere abgaben erledigen wie 1723, 1725, 1730,
 
 # Reflexion
 ### 20.09.2024
-### Heute konnte ich meine Ziele fast erreichen, und ich denke, dass ich relativ gut gearbeitet habe.
+### ich konnte die abgaben alle erledigen.
 
 
 
