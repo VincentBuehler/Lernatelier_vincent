@@ -1,3 +1,26 @@
+# Lernatelier Tag 7
+### 18.10.2024
+### Ziele 
+### heute will 
+
+# Reflexion
+### 18.10.2024
+### Heute konnte ich meine Ziele fast erreichen, und ich denke, dass ich relativ gut gearbeitet habe.
+
+
+
+
+# Lernatelier Tag 6
+### 20.09.2024
+### Ziele 
+### heute will 
+
+# Reflexion
+### 20.09.2024
+### Heute konnte ich meine Ziele fast erreichen, und ich denke, dass ich relativ gut gearbeitet habe.
+
+
+
 # Lernatelier Tag 5
 ### 13.09.2024
 ### Ziele
