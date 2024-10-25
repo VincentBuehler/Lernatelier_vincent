@@ -4,7 +4,7 @@
 ### Ich will einen Übungstest von Frau Dilie machen und unklare sachen Frau rieder fragen und so noch besser Modul 319 besser kennen lernen. Wenn es klappt bin ich Glücklichh
 # Reflexion
 ### 25.10.2024
-### 
+### ich konnte die übung fast aleine lösen und ich denke das ich heute recht konzentriert gearbeitet habe.
 
 
 
