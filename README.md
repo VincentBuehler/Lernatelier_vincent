@@ -1,3 +1,12 @@
+# Lernatelier Tag 9
+### 1.11.2024
+### Ziele 
+### Heute will ich mir von chat gpt aufgaben stellen lassen und diese dann lösen und auf you toube einfache Aufgaben anschauen und versuchen diese zu lösen.
+# Reflexion
+### 1.11.2024
+### 
+
+
 # Lernatelier Tag 8
 ### 25.10.2024
 ### Ziele 
