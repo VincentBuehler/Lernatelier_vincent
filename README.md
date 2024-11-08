@@ -4,7 +4,7 @@
 ### Heute arbeite ich beim Programierprojektweiter wie zum Beispiel die Anforderungsanalyse erstellen und einen PAP erstellen
 # Reflexion
 ### 08.11.2024
-### 
+### Heute habe ich nicht so gut gearbeitet aber konnte trotzdem meine arbeiten erfüllen ich will nächstes mal wieder besser arbeiten
 
 # Lernatelier Tag 9
 ### 1.11.2024
