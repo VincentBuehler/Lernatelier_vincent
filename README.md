@@ -1,3 +1,12 @@
+# Lernatelier Tag 11
+### 15.11.2024
+### Ziele 
+### Heute arbeite ich die aufgaben von Modul 162 auf die ich letzten Mittwoch nicht erfüllt habe, und ich arbeite am Programierprojekt weiter mit dem Programieren
+# Reflexion
+### 15.11.2024
+### 
+
+
 # Lernatelier Tag 10
 ### 08.11.2024
 ### Ziele 
