@@ -5,7 +5,7 @@
 
 # Reflexion
 ### 15.11.2024
-### 
+### Heute habe ich meine Ziele ereicht, ich konnte meine aufträge lösen, leider habe ich im Programierprojekt nicht so gut gearbeitet da es schwierig war von zuhausemit meinem Partner zu arbeiten.
 
 
 # Lernatelier Tag 10
