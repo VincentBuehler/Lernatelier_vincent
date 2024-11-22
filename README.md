@@ -1,4 +1,13 @@
 # Lernatelier Tag 11
+### 22.11.2024
+### Ziele 
+### Heute will ich mit Tobi das Programierprojekt beenden, wir schreiben den code fertig und berreiten den Vortrag vor
+
+# Reflexion
+### 22.11.2024
+### 
+
+# Lernatelier Tag 11
 ### 15.11.2024
 ### Ziele 
 ### Heute arbeite ich die aufgaben von Modul 162 auf die ich letzten Mittwoch nicht erfüllt habe LA 6953, und ich arbeite am Programierprojekt weiter mit dem Programieren
