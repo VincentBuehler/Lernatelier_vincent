@@ -5,7 +5,8 @@
 
 # Reflexion
 ### 22.11.2024
-### 
+### heute haben wir das programieren beendet, ich denke wir haben nicht so konzentriert gearbeitet. Beim vortrag kamen wir nicht mehr so weit
+
 
 # Lernatelier Tag 11
 ### 15.11.2024
