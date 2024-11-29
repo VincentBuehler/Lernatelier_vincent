@@ -1,4 +1,4 @@
-# Lernatelier Tag 12
+# Lernatelier Tag 13
 ### 29.11.2024
 ### Ziele 
 ### Heute verbessern wir noch die letzeten fehler bei dem Programm und berreiten den Vortrag für nächsten dienstag vor
@@ -8,7 +8,7 @@
 ### Ich konnte heute viel an dem Vortrag zuhause arbeiten und denke das ich heute relativ gut gearbeitet habe
 
 
-# Lernatelier Tag 11
+# Lernatelier Tag 12
 ### 22.11.2024
 ### Ziele 
 ### Heute will ich mit Tobi das Programierprojekt beenden, wir schreiben den code fertig und berreiten den Vortrag vor
