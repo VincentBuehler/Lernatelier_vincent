@@ -5,7 +5,7 @@
 
 # Reflexion
 ### 29.11.2024
-###
+### Ich konnte heute viel an dem Vortrag zuhause arbeiten und denke das ich heute relativ gut gearbeitet habe
 
 
 # Lernatelier Tag 11
