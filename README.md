@@ -1,3 +1,14 @@
+# Lernatelier Tag 14
+### 06.12.2024
+### Ziele 
+### 1. Heute repetiere ich die Normalformen von dem Modul 162
+### 2. Heute Will ich mein Portfolio von dem Modul 162 schreiben
+### 3. Programierprojekt starten und die Anforderungsanalyse schreiben
+
+### 06.12.2024
+### 
+
+
 # Lernatelier Tag 13
 ### 29.11.2024
 ### Ziele 
