@@ -6,7 +6,8 @@
 ### 3. Programierprojekt starten und die Anforderungsanalyse schreiben
 
 ### 06.12.2024
-### 
+### heute konnte ich sehr gut arbeiten und wir haben uns für Tic Tac Toe entschieden
+
 
 
 # Lernatelier Tag 13
