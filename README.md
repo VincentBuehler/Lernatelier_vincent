@@ -6,7 +6,7 @@
 ### 3. Dannach beginne ich mit dem Programierprojekt zusammen mit Tobias und schauen wie weit wir kommen
 
 ### 13.12.2024
-###
+### Heute habe ich gut gearbeitet ich konnte anforderungs analyse und zeitplan beenden und auch schon beim programieren beginnen
 
 
 # Lernatelier Tag 14
