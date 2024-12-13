@@ -1,3 +1,14 @@
+# Lernatelier Tag 15
+### 13.12.2024
+### Ziele 
+### 1. Heute will ich die Anforderungsanalyse erstellen(alles wo wir für das Projekt benötigen zu planen)
+### 2. Heute will ich den Zeitplan erstellen erstellen
+### 3. Dannach beginne ich mit dem Programierprojekt zusammen mit Tobias und schauen wie weit wir kommen
+
+### 13.12.2024
+###
+
+
 # Lernatelier Tag 14
 ### 06.12.2024
 ### Ziele 
