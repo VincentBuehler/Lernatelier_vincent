@@ -2,11 +2,11 @@
 ### 20.12.2024
 ### Ziele 
 ### 1. Heute will ich mich noch über das Programm informieren und wenn möglich erweiterungen einbauen
-### 2. Heute will ich beim Programm mit Tobi weiter programieren
+### 2. Heute will ich beim Programm mit Tobi weiter programieren + grafik
 ### 3. ich will von dem Modul 164 bei frau dillier die aufträge lösen die ich noch nicht beendet habe
 
 ### 20.12.2024
-### Heute konnte ich mich nicht mehr so konzentrieren da es die letzen stunden vor den ferien waren aber trotzdem bin ich vorwärts gekommen
+### Heute konnte ich mich nicht mehr so konzentrieren da es die letzen stunden vor den ferien waren aber trotzdem bin ich vorwärts gekommen und wir sind leider auch nicht so weit mit der grafik gekommen
 
 # Lernatelier Tag 15
 ### 13.12.2024
