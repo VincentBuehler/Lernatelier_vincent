@@ -1,3 +1,13 @@
+# Lernatelier Tag 16
+### 20.12.2024
+### Ziele 
+### 1. Heute will ich mich noch über das Programm informieren und wenn möglich erweiterungen einbauen
+### 2. Heute will ich beim Programm mit Tobi weiter programieren
+### 3. ich will von dem Modul 164 bei frau dillier die aufträge lösen die ich noch nicht beendet habe
+
+### 20.12.2024
+### 
+
 # Lernatelier Tag 15
 ### 13.12.2024
 ### Ziele 
