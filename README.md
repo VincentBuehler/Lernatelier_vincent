@@ -6,7 +6,7 @@
 ### 3. ich will von dem Modul 164 bei frau dillier die aufträge lösen die ich noch nicht beendet habe
 
 ### 20.12.2024
-### 
+### Heute konnte ich mich nicht mehr so konzentrieren da es die letzen stunden vor den ferien waren aber trotzdem bin ich vorwärts gekommen
 
 # Lernatelier Tag 15
 ### 13.12.2024
