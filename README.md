@@ -6,7 +6,7 @@
 ### 3. Projekt besprechen mit Frau Rieder
 
 ### 10.1.2025
-###
+### heute konnten ich und tobi gut arbeiten wir sind mit dem projekt fertig geworden 
 
 
 # Lernatelier Tag 16
