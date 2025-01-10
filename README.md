@@ -1,3 +1,14 @@
+# Lernatelier Tag 17
+### 10.1.2025
+### Ziele 
+### 1. Heute will ich noch die Aufträge die ich noch nicht gelöst habe vom modul 164 nachholen
+### 2. Programm verbessern von tic tac toe
+### 3. Projekt besprechen mit Frau Rieder
+
+### 10.1.2025
+###
+
+
 # Lernatelier Tag 16
 ### 20.12.2024
 ### Ziele 
