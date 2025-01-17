@@ -1,3 +1,16 @@
+# Lernatelier Tag 18
+### 17.1.2025
+### Ziele 
+### 1. Heute Will ich ein Paar Aufträge von dem Modul 117 Lösen
+### 2. Heute will ich das Programm Tic Tac Toe mit Tobi erweitern mit Farben sodass man es einfacher erkennt wer etwas wo hingesetzt hat
+### 3. Heute will ich bei meinem Projekt weiterarbeiten von dem Modul 164
+
+# Reflexion
+### 17.1.2025
+### 
+
+
+
 # Lernatelier Tag 17
 ### 10.1.2025
 ### Ziele 
