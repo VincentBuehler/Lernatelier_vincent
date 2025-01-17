@@ -7,7 +7,7 @@
 
 # Reflexion
 ### 17.1.2025
-### 
+### Heute habe ich gut gearbeitet und wir konnten das ziel mit den Farben beim Tic-Tac-Toe umsetzen
 
 
 
