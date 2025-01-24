@@ -1,3 +1,16 @@
+# Lernatelier Tag 19
+### 24.1.2025
+### Ziele 
+### 1. wir versuchen heute ein menu neben dem haubtbrett einzublenden damit die spieler z.B farben oder highscore sehen
+### 2. aufträge von 117 vertig lösen
+### 3. computergegner 
+
+# Reflexion
+### 24.1.2025
+###
+
+
+
 # Lernatelier Tag 18
 ### 17.1.2025
 ### Ziele 
