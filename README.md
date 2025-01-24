@@ -7,7 +7,7 @@
 
 # Reflexion
 ### 24.1.2025
-###
+### heute haben wir nochmal gut gearbeitet und konnten unsere ziele erreichen
 
 
 
