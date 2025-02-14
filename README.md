@@ -1,3 +1,15 @@
+# Lernatelier Tag 20
+### 14.2.2025
+### Ziele 
+### 1. ich will die berechtigungsmatrix fertig machen
+### 2. lb 164
+### 3. vorbereiten für labor von modul 117
+
+# Reflexion
+### 14.2.2025
+### 
+
+
 # Lernatelier Tag 19
 ### 24.1.2025
 ### Ziele 
