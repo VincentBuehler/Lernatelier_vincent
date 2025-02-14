@@ -7,7 +7,7 @@
 
 # Reflexion
 ### 14.2.2025
-### 
+### Heute war das arbeiten nicht so leicht weil ich den auftrag berechtigungsmatrix nicht verstanden habe der rest hat gut funktioniert
 
 
 # Lernatelier Tag 19
